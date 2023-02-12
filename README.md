@@ -1,0 +1,1 @@
+# footer_tech_res
